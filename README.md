@@ -1,1 +1,1 @@
-**Information System Icon**
+
